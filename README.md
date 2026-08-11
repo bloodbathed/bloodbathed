@@ -1,16 +1,16 @@
-## Hi there 👋
+[uncle](https://github.com/devilhunting)
 
-<!--
-**bloodbathed/bloodbathed** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
+<div align ="center">
 
-Here are some ideas to get you started:
+![](https://komarev.com/ghpvc/?username=bloodbatheds&color=EBAEBD&label=killed)
 
-- 🔭 I’m currently working on ...
-- 🌱 I’m currently learning ...
-- 👯 I’m looking to collaborate on ...
-- 🤔 I’m looking for help with ...
-- 💬 Ask me about ...
-- 📫 How to reach me: ...
-- 😄 Pronouns: ...
-- ⚡ Fun fact: ...
--->
+
+
+
+The blood In the Bath
+<img width="1600" height="720" alt="6412" src="https://github.com/user-attachments/assets/24ac2cd5-932f-4b23-b125-e2107161e8d6" />
+
+
+
+[prnouns.cc](https://pronouns.cc/@xbri.)
+</div> 
